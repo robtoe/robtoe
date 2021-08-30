@@ -1,0 +1,5 @@
+- 👋 What up fools, I’m @robtoe
+- 👀 I’m interested in ... games
+- 🌱 I’m currently learning ... American sugar cane worker history
+- 💞️ I’m looking to collaborate on ... Galactic Snackers
+- 📫 How to reach me ...robyntoohs@gmail.com
